@@ -20,3 +20,4 @@ Hệ thống tưới Mạnh Toàn Phát – Các giải pháp tưới tự độ
 Do nhu cầu phát triển kinh doanh, Công ty TNHH Mạnh Toàn Phát Gia Lai (Hệ thống tưới Mạnh Toàn Phát và NPP Nhựa Tiền Phong Gia Lai) cần tuyển thêm **3 Kế toán kho (nữ)**, ưu tiên có kinh nghiệm!
 
 **Thông tin chi tiết và cách thức ứng tuyển mời tham khảo** thông tin tại trang web của công ty.
+##  Website: [https://manhtoanphat.vn/tuyen-dung]
